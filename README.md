@@ -1,5 +1,5 @@
 # __3D DONUT!!!!!__
 
-`Я написал его во время просмотра нетфликса под одеялом ^^`
+`I wrote it while watching netflix under the covers ^^`
 
 
